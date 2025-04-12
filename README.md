@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **gujjarlikhith@gmail.com**
 
-- ⚡ Fun fact **I cook well whether its ideas or food**
+- ⚡ Fun fact :  **" I cook well whether its ideas or food "**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
